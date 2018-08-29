@@ -1,0 +1,1 @@
+# telepon-putar-ideal
